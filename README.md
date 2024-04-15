@@ -30,5 +30,12 @@ I would say the most memorable event was a Blink-182 concert in Prague. It was j
 
 It was also the first time I've been in the O2 arena and it was a shock how small it was in real life. From photos, it always looked way bigger.
 
+## **Bonus:**
+
+And here is probably the most important part for me. I realized so many things and I would say the most important one of them was setting my priorities. We all have priorities in life. And they change as we age. 
+
+But I realized how I sometimes cared about things that weren't that important and on the other hand I was overlooking things that should matter for me. I realised that to live a happy life you actually need way less than you think. A lot of the things are not that important.
+
+
 
 Thats all. I wish you a wonderful day.
