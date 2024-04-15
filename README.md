@@ -18,15 +18,7 @@ Of course, these English lessons were actually really entertaining and full of v
 
 But I have probably one moment from school I liked the most.
 
-It was a visit to a sound effects studio. I extremely liked that presentation.
-
-I think that sounds are extremely important in video production and I wanted to get as much value as possible from it because there are no rules in here.
-
-So I listened really closely.
-
-There was also a huge painting I kinda liked and it inspired me to start painting with acrylics.
-
-Then we also had some nice town adventure with my classmates and it was overall a nice school day.
+It was a visit to a sound effects studio. I extremely liked that presentation. I think that sounds are extremely important in video production and I wanted to get as much value as possible from it because there are no rules in here. So I listened really closely. There was also a huge painting I kinda liked and it inspired me to start painting with acrylics. Then we also had some nice town adventure with my classmates and it was overall a nice school day.
 
 
 ## **Work:**
