@@ -4,7 +4,7 @@ The last 12 months of my life were kinda interesting I guess. It wasn't a good y
 
 But let's be positive. I will write about my work, school, and free time life. I can't say everything because it would be too long but I will at least mention one thing from each category I considered as important, lifechanging or at least interesting.
 
-Let's start with the first topic. And that:
+Let's start with the first topic. And thats:
 
 ## **School:**
 
